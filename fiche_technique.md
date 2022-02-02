@@ -19,6 +19,7 @@
 -Liste des éléments nécessaires pour la mise en exposition (ex. : crochets, sac de sable, câbles de soutien...): 
 
 - Expérience vécue:
+
 *
 *
 *
